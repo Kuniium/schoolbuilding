@@ -1,0 +1,1 @@
+School for each village!
